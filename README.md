@@ -12,3 +12,8 @@ if you want that code, contact me.
 
 youtube Deleop Log list
 https://youtube.com/playlist?list=PL2ENmHYHbuuQ5sHseASoeFhZFkuf4SQqc
+
+
+
+
+
