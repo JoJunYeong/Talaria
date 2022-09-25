@@ -1,5 +1,5 @@
 # Talaria<br>
-2020.04 ~ ing
+2020.04 ~ 2022.04
 <br><br>
 
 We made Hermes's shoes Talaria for Vritual Reality.<br>
